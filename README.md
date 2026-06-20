@@ -57,7 +57,7 @@
 
 📧 Email: sathwikamru@gmail.com
 
-💼 LinkedIn: YOUR_LINKEDIN_URL
+💼 LinkedIn: https://www.linkedin.com/in/sathwik-amrutha-626b63300/
 
 ---
 
